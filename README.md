@@ -5,5 +5,5 @@
 
 
 
-https://t.me/@johnnyinthedark
+https://t.me/johnnyinthedark
 
